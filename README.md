@@ -1,5 +1,5 @@
 
-# 👋 Hi, I’m Mauro Kjær  
+# 👋 Hi, I'm Mauro  
 
 I’m a business law student and founder building products at the intersection of **tech, history, and AI**.  
 

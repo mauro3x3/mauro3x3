@@ -12,4 +12,4 @@ I like turning ideas into working apps and sharing the process.
 
 
 
-hmu here 🌐 [maurokjaer.com](https://maurokjaer.com)  
+hmu here --> [maurokjaer.com](https://maurokjaer.com)  
